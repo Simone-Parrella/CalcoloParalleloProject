@@ -1,3 +1,3 @@
 # CalcoloParalleloProject
-# un progetto per veri uomini, come Lucy 💄
+# un progetto per veri uomini
 # BUON COMPLEANNO ANGELONE
